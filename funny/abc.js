@@ -1,6 +1,1 @@
-dfd, dfd dfd df df df df df df dfdf dfdf df df 
-
-
-
-
-Error Hrsh
+i almost forget the js adn i will learen it any how 
